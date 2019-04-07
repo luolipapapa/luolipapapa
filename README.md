@@ -12,4 +12,5 @@ www.luolipapapa.com
 
 # ppy69
 皮皮鸭地址发布
-最新域名1：www.ppy69.com
+最新域名1：www.ppy96.com
+最新域名2：www.ppy69.com
